@@ -1,1 +1,1 @@
-# Solutions-to-Discrete-Mathematics-with-Applications-4th-addition-Susanna-Epp
+# Solutions-to-Discrete-Mathematics-with-Applications-4th-edition-Susanna-Epp
